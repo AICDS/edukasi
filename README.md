@@ -1,2 +1,0 @@
-# edukasi
-Bzhshs
